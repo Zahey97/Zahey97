@@ -32,7 +32,7 @@ My expertise lies in translating complex operational needs into simple, effectiv
 
 ---
 
-## 🚀 Key Projects & Achievements (The "Show Off" Section)
+## 🚀 Key Projects & Achievements
 
 My work is focused on impact, measured by efficiency and accuracy.
 
